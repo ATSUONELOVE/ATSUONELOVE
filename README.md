@@ -22,7 +22,7 @@
    
   <hr>
 
-<img src="https://tenor.com/view/atsushi-thinking-gif-12418008.gif" width=200 height=200>
+<img src="https://tenor.com/view/bungou-stray-dogs-atsushi-nakajima-atsushi-bsd-gif-24347502.gif" width=200 height=200>
 <img src="https://file.garden/aOvxYPBe6gwrFoVB/Untitled583_20251106025014.png" width=280 height=280>
 </table> 
 
