@@ -26,4 +26,4 @@
 <img src="https://file.garden/aOvxYPBe6gwrFoVB/Untitled583_20251106025014.png" width=280 height=280>
 </table> 
 
-<img src="https://yokai.crd.co/assets/images/image24.gif?v=b4df531c.gif" width=200>
+<img src="https://64.media.tumblr.com/2747b77b1f5e2dc44d25c50ef0c457ca/545c7cac02a7dc56-f5/s1280x1920/7a67db2d2c2b4ab5c1c5551061140f163437a121.gifv" width=700>
