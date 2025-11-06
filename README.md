@@ -5,7 +5,7 @@
 </div>
 <p>
 <div align="center">
-<img src="https://file.garden/aOvxYPBe6gwrFoVB/Untitled583_20251106020747.png" width="980">
+<img src="https://file.garden/aOvxYPBe6gwrFoVB/Untitled583_20251106020747.png" width="780">
 </div>
 </p>
 <div align="center">
